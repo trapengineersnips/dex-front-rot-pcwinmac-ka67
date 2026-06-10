@@ -1,4 +1,4 @@
-# 
+# Ultime dex front-running bot extensions pour Mac OS | Instantané dex front-running bot extensions pour PC Windows. Avec analyse du carnet d'ordres et analyse de volume — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
